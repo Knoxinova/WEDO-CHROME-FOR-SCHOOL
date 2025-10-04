@@ -1,2 +1,3 @@
 # WEDO-CHROME-FOR-SCHOOL
-This is how to get chrome from schol
+This is how to get chrome from school
+# INSTRUCTIONS COMING SOON BBUT THIS IS MAINLY FOR MY FRIENDS AND FELLOW SCHOLARS
